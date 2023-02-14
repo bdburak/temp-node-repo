@@ -1,0 +1,1 @@
+https://youtu.be/Oe421EPjeBE?list=PLGsH0zrlLj6Okhe8WlfyXx4biQLH5H-kE&t=7471   burdan devam
